@@ -1,2 +1,1 @@
-Environmental Economist\
-Colgate University
+
